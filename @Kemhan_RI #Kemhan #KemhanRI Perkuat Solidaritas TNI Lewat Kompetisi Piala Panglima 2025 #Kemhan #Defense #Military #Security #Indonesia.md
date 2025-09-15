@@ -1,0 +1,10 @@
+# [@Kemhan_RI #Kemhan #KemhanRI Perkuat Solidaritas TNI Lewat Kompetisi Piala Panglima 2025 #Kemhan #Defense #Military #Security #Indonesia](https://swanteadikrisna.com/kemhan/website/222/kemhan-perkuat-solidaritas-tni-lewat-kompetisi-piala-panglima-2025/)
+
+Penelitian ini menganalisis dampak strategis partisipasi Kementerian Pertahanan dalam Turnamen Piala Panglima TNI 2025 sebagai instrumen diplomasi internal dan penguatan kohesi institusional. Melalui pendekatan kualitatif dan observasi langsung, studi ini mengeksplorasi bagaimana kompetisi olahraga dapat menjadi katalis efektif dlm membangun solidaritas antar-institusi pertahanan, khususnya antara TNI dan Kemhan. Analisis mencakup dimensi psikologis, sosiologis, dan strategis dari partisipasi Kemhan dlm cabang bulutangkis dan tenis lapangan. #Kemhan #Defense #Military #Security #Indonesia 
+
+[Download @Kemhan_RI #Kemhan #KemhanRI Perkuat Solidaritas TNI Lewat Kompetisi Piala Panglima 2025 #Kemhan #Defense #Military #Security #Indonesia](https://swanteadikrisna.com/kemhan/website/222/kemhan-perkuat-solidaritas-tni-lewat-kompetisi-piala-panglima-2025/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
