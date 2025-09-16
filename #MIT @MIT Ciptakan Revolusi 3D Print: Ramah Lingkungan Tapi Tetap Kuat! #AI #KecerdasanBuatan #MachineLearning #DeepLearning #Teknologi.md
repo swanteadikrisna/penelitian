@@ -1,0 +1,10 @@
+# [#MIT @MIT Ciptakan Revolusi 3D Print: Ramah Lingkungan Tapi Tetap Kuat! #AI #KecerdasanBuatan #MachineLearning #DeepLearning #Teknologi](https://swanteadikrisna.com/ai/website/54/mit-ciptakan-revolusi-3d-print-ramah-lingkungan-tapi-tetap-kuat/)
+
+Penelitian ini mengeksplorasi pengembangan sistem SustainaPrint yg menggabungkan analisis elemen hingga dengan strategi penguatan selektif untuk menciptakan objek pencetakan 3D yang ramah lingkungan tanpa mengorbankan integritas struktural. Melalui pendekatan hibrida yang menggunakan kombinasi strategis antara filamen biodegradable dan material berkekuatan tinggi, teknologi ini berhasil memulihkan hingga 70% kekuatan objek dibandingkan dengan pencetakan menggunakan plastik berkinerja tinggi secara penuh, sambil mengurangi konsumsi material petroleum-based secara signifikan. #AI #KecerdasanBuatan #MachineLearning #DeepLearning #Teknologi 
+
+[Download #MIT @MIT Ciptakan Revolusi 3D Print: Ramah Lingkungan Tapi Tetap Kuat! #AI #KecerdasanBuatan #MachineLearning #DeepLearning #Teknologi](https://swanteadikrisna.com/ai/website/54/mit-ciptakan-revolusi-3d-print-ramah-lingkungan-tapi-tetap-kuat/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
