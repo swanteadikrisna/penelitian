@@ -1,0 +1,10 @@
+# [Filsuf AI Mengubah Pendidikan Komputer dengan Etika Tertanam #FilsafatIslam #FilsafatBarat #QuotesIndonesia #BukuSejarah #PuisiIndonesia](https://swanteadikrisna.com/filsafat/website/2/filsuf-ai-mengubah-pendidikan-komputer-dengan-etika-tertanam/)
+
+Penelitian ini menganalisis implementasi model etika tertanam (embedded ethics) dalam pendidikan artificial intelligence (AI) sebagai respons terhadap meningkatnya kebutuhan akan kompetensi etis dalam pengembangan teknologi komputasi. Studi ini mengeksplorasi bagaimana integrasi filosofis dapat meningkatkan kemampuan mahasiswa ilmu komputer dlm menghadapi dilema etis yang kompleks dalam era digitalisasi modern. Melalui analisis komparatif program-program etika tertanam di berbagai institusi pendidikan tinggi, penelitian ini menunjukkan efektivitas pendekatan interdisipliner antara filsafat dan ilmu komputer dalam membentuk generasi teknolog yg bertanggung jawab secara etis. #FilsafatIslam #FilsafatBarat #QuotesIndonesia #BukuSejarah #PuisiIndonesia 
+
+[Download Filsuf AI Mengubah Pendidikan Komputer dengan Etika Tertanam #FilsafatIslam #FilsafatBarat #QuotesIndonesia #BukuSejarah #PuisiIndonesia](https://swanteadikrisna.com/filsafat/website/2/filsuf-ai-mengubah-pendidikan-komputer-dengan-etika-tertanam/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
