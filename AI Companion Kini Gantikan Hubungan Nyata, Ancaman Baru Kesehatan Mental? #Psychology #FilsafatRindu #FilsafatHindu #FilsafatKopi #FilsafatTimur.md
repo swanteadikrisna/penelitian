@@ -1,0 +1,10 @@
+# [AI Companion Kini Gantikan Hubungan Nyata, Ancaman Baru Kesehatan Mental? #Psychology #FilsafatRindu #FilsafatHindu #FilsafatKopi #FilsafatTimur](https://swanteadikrisna.com/filsafat/website/22/ai-companion-kini-gantikan-hubungan-nyata-ancaman-baru-kesehatan-mental/)
+
+Penelitian ini mengkaji transformasi pola intimasi manusia dlm era digital, khususnya dampak cyber-intimacy terhadap kesehatan mental individu dan struktur sosial masyarakat. Dengan menganalisis fenomena AI companion, digisexuality, dan ketergantungan emosional terhadap teknologi, studi ini mengungkap bagaimana teknologi digital mengubah cara manusia berinteraksi, membentuk hubungan, dan memahami konsep cinta serta intimasi. Penelitian menunjukkan bahwa meskipun teknologi ini menawarkan solusi bagi kelompok marginal, dampak jangka panjangnya berpotensi mengancam kemampuan manusia dlm berrelasi secara natural dan dapat mengikis fondasi demokrasi. #Psychology #FilsafatRindu #FilsafatHindu #FilsafatKopi #FilsafatTimur 
+
+[Download AI Companion Kini Gantikan Hubungan Nyata, Ancaman Baru Kesehatan Mental? #Psychology #FilsafatRindu #FilsafatHindu #FilsafatKopi #FilsafatTimur](https://swanteadikrisna.com/filsafat/website/22/ai-companion-kini-gantikan-hubungan-nyata-ancaman-baru-kesehatan-mental/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
