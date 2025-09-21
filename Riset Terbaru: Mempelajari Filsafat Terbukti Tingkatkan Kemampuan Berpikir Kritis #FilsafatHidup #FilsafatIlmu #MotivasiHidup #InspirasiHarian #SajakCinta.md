@@ -1,0 +1,10 @@
+# [Riset Terbaru: Mempelajari Filsafat Terbukti Tingkatkan Kemampuan Berpikir Kritis #FilsafatHidup #FilsafatIlmu #MotivasiHidup #InspirasiHarian #SajakCinta](https://swanteadikrisna.com/filsafat/website/11/riset-terbaru-mempelajari-filsafat-terbukti-tingkatkan-kemampuan-berpikir-kritis/)
+
+Penelitian komprehensif ini menganalisis dampak pembelajaran filsafat terhadap peningkatan kemampuan berpikir kritis mahasiswa melalui metodologi empiris yang menggunakan Habits of Mind scale dan perbandingan skor tes standardisasi. Studi longitudinal ini memberikan bukti konkret bahwa mahasiswa jurusan filsafat mengalami peningkatan signifikan dalam disposisi intelektual dan performa kognitif dibandingkan mahasiswa dari disiplin ilmu lainnya, dengan implikasi penting bagi masa depan pendidikan tinggi. #FilsafatHidup #FilsafatIlmu #MotivasiHidup #InspirasiHarian #SajakCinta 
+
+[Download Riset Terbaru: Mempelajari Filsafat Terbukti Tingkatkan Kemampuan Berpikir Kritis #FilsafatHidup #FilsafatIlmu #MotivasiHidup #InspirasiHarian #SajakCinta](https://swanteadikrisna.com/filsafat/website/11/riset-terbaru-mempelajari-filsafat-terbukti-tingkatkan-kemampuan-berpikir-kritis/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
