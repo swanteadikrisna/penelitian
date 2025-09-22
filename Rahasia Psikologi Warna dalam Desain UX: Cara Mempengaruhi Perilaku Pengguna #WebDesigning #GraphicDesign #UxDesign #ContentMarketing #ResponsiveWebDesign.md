@@ -1,0 +1,10 @@
+# [Rahasia Psikologi Warna dalam Desain UX: Cara Mempengaruhi Perilaku Pengguna #WebDesigning #GraphicDesign #UxDesign #ContentMarketing #ResponsiveWebDesign](https://swanteadikrisna.com/webdev/website/1/rahasia-psikologi-warna-dalam-desain-ux-cara-mempengaruhi-perilaku-pengguna/)
+
+Penelitian ini mengeksplorasi peran fundamental psikologi warna dlm desain user experience (UX) dan produk digital. Melalui analisis mendalam terhadap model HSB (Hue, Saturation, Brightness), dampak emosional warna, dan aplikasi strategis dlm antarmuka digital, studi ini menyajikan kerangka kerja komprehensif untuk memahami bagaimana warna mempengaruhi perilaku pengguna, membangun identitas merek, dan menciptakan pengalaman digital yg bermakna serta aksesibel untuk berbagai kalangan pengguna. #WebDesigning #GraphicDesign #UxDesign #ContentMarketing #ResponsiveWebDesign 
+
+[Download Rahasia Psikologi Warna dalam Desain UX: Cara Mempengaruhi Perilaku Pengguna #WebDesigning #GraphicDesign #UxDesign #ContentMarketing #ResponsiveWebDesign](https://swanteadikrisna.com/webdev/website/1/rahasia-psikologi-warna-dalam-desain-ux-cara-mempengaruhi-perilaku-pengguna/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
