@@ -1,0 +1,10 @@
+# [4 Menteri Tinjau Prototipe Batalyon Infanteri di Bekasi, Siap Bangun 100 Unit #KedaulatanWilayah #PenjagaanPerbatasan #ZeniMiliter #AnalisaAncaman #PendidikanMiliter](https://swanteadikrisna.com/kemhan/website/172/menhan-ri-bersama-tiga-menteri-tinjau-batalyon-infanteri-teritorial-pembangunan-di-bekasi/)
+
+Penelitian ini menganalisis implementasi Batalyon Infanteri Teritorial Pembangunan (Yonif TP) sebagai inovasi revolusioner dalam konsep pertahanan Indonesia. Melalui pendekatan interdisipliner, kajian ini mengevaluasi efektivitas integrasi fungsi militer dengan pembangunan sipil dalam memperkuat ketahanan nasional. Analisis dilakukan terhadap pilot project Yonif TP 843/Patriot Yudha Vikasa di Bekasi yang menjadi prototipe pengembangan 100 batalyon serupa dlm lima tahun kedepan. #KedaulatanWilayah #PenjagaanPerbatasan #ZeniMiliter #AnalisaAncaman #PendidikanMiliter 
+
+[Download 4 Menteri Tinjau Prototipe Batalyon Infanteri di Bekasi, Siap Bangun 100 Unit #KedaulatanWilayah #PenjagaanPerbatasan #ZeniMiliter #AnalisaAncaman #PendidikanMiliter](https://swanteadikrisna.com/kemhan/website/172/menhan-ri-bersama-tiga-menteri-tinjau-batalyon-infanteri-teritorial-pembangunan-di-bekasi/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
