@@ -1,0 +1,10 @@
+# [Pundit BBC Prediksi Arsenal Kalahkan Man City: &quot;Haaland Akan Terbully&quot; #ArsenalFc #ArsenalFans #ArsenalNews #Arteta #EuropaLeague](https://swanteadikrisna.com/arsenal/website/51/pundit-bbc-prediksi-arsenal-kalahkan-man-city-haaland-akan-terbully/)
+
+Penelitian ini menganalisis dinamika performa Erling Haaland dalam menghadapi sistem pertahanan Arsenal, khususnya fokus pada strategi marking dan pressing yang diterapkan duo Gabriel-Saliba. Studi ini juga mengkaji efektivitas taktik Arsenal dlm menetralisir ancaman striker Manchester City tersebut melalui pendekatan fisik dan psikologis di lapangan. Analisis dilakukan berdasarkan data performa musim 2025-26 dan pertemuan sebelumnya antara kedua tim. Temuan menunjukkan pola konsisten dalam strategi Arsenal yg cenderung berhasil membatasi produktivitas Haaland melalui pendekatan defensif agresif. #ArsenalFc #ArsenalFans #ArsenalNews #Arteta #EuropaLeague 
+
+[Download Pundit BBC Prediksi Arsenal Kalahkan Man City: &quot;Haaland Akan Terbully&quot; #ArsenalFc #ArsenalFans #ArsenalNews #Arteta #EuropaLeague](https://swanteadikrisna.com/arsenal/website/51/pundit-bbc-prediksi-arsenal-kalahkan-man-city-haaland-akan-terbully/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
