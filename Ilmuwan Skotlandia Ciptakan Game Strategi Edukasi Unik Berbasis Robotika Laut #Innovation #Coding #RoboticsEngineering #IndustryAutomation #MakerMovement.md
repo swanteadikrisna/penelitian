@@ -1,0 +1,10 @@
+# [Ilmuwan Skotlandia Ciptakan Game Strategi Edukasi Unik Berbasis Robotika Laut #Innovation #Coding #RoboticsEngineering #IndustryAutomation #MakerMovement](https://swanteadikrisna.com/robot/website/3/ilmuwan-skotlandia-game-strategi-robotika-laut-edukasi/)
+
+Penelitian ini menganalisis implementasi teknologi robotika dalam pengembangan media pembelajaran sains kelautan melalui studi kasus game edukasi Drones and Droids yang dikembangkan oleh Scottish Association for Marine Science. Pendekatan interdisipliner ini menggabungkan pengalaman empiris penelitian robotika laut dengan metodologi gamification untuk menciptakan alat pembelajaran yang autentik dan interaktif. Analisis menunjukkan bahwa integrasi teknologi robotika dlm konteks edukasi dapat meningkatkan pemahaman konseptual siswa tentang aplikasi sains dalam kehidupan nyata. #Innovation #Coding #RoboticsEngineering #IndustryAutomation #MakerMovement 
+
+[Download Ilmuwan Skotlandia Ciptakan Game Strategi Edukasi Unik Berbasis Robotika Laut #Innovation #Coding #RoboticsEngineering #IndustryAutomation #MakerMovement](https://swanteadikrisna.com/robot/website/3/ilmuwan-skotlandia-game-strategi-robotika-laut-edukasi/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
