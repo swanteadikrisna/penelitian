@@ -1,0 +1,10 @@
+# [Dirjen Kuathan Kemhan Tinjau Penghapusan 84 Unit Materiil di Kodam XIV #KementerianPertahanan #SistemRadar #LatihanMiliter #KerjasamaBilateral #PTDirgantara](https://swanteadikrisna.com/kemhan/website/95/dirjen-kuathan-kemhan-tinjau-penghapusan-84-unit-materiil-di-kodam-xiv/)
+
+Penelitian ini menganalisis proses transformasi manajemen aset pertahanan melalui studi kasus penghapusan materiil di Kodam XIV/Hasanuddin. Kajian mendalam terhadap implementasi kebijakan modernisasi alutsista TNI AD dalam konteks efisiensi anggaran dan peningkatan kapabilitas operasional. Analisis meliputi aspek administratif, teknis, dan strategis dari proses verifikasi materiil zeni dan tekmek yang dilaksanakan oleh Direktorat Jenderal Kekuatan Pertahanan Kementerian Pertahanan. #KementerianPertahanan #SistemRadar #LatihanMiliter #KerjasamaBilateral #PTDirgantara 
+
+[Download Dirjen Kuathan Kemhan Tinjau Penghapusan 84 Unit Materiil di Kodam XIV #KementerianPertahanan #SistemRadar #LatihanMiliter #KerjasamaBilateral #PTDirgantara](https://swanteadikrisna.com/kemhan/website/95/dirjen-kuathan-kemhan-tinjau-penghapusan-84-unit-materiil-di-kodam-xiv/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
