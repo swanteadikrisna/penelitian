@@ -1,0 +1,10 @@
+# [Auditor Kemhan Dapat Arahan Khusus: Integritas Jadi Kunci Utama #PertahananNasional #KemandirianPertahanan #ZonaEkonomiEksklusif #KekuatanInfanteri #KerjasamaBilateral](https://swanteadikrisna.com/kemhan/website/141/auditor-kemhan-dapat-arahan-khusus-integritas-jadi-kunci-utama/)
+
+Penelitian ini mengkaji implementasi program pengembangan kapasitas auditor internal di lingkungan Inspektorat Jenderal Kementerian Pertahanan melalui kegiatan jam pimpinan yang dilaksanakan pada tanggal 6 Agustus 2025. Fokus kajian meliputi penguatan integritas, profesionalisme, dan kompetensi auditor dalam menghadapi dinamika perubahan organisasi Kemhan dan TNI. Analisis dilakukan terhadap efektivitas metode pembinaan melalui arahan langsung pimpinan dalam meningkatkan sinergi dan soliditas tim auditor. #PertahananNasional #KemandirianPertahanan #ZonaEkonomiEksklusif #KekuatanInfanteri #KerjasamaBilateral 
+
+[Download Auditor Kemhan Dapat Arahan Khusus: Integritas Jadi Kunci Utama #PertahananNasional #KemandirianPertahanan #ZonaEkonomiEksklusif #KekuatanInfanteri #KerjasamaBilateral](https://swanteadikrisna.com/kemhan/website/141/auditor-kemhan-dapat-arahan-khusus-integritas-jadi-kunci-utama/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
