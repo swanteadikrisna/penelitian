@@ -1,0 +1,10 @@
+# [AI Sentient Butuh Hak Moral? Perdebatan Etis yg Makin Mendesak #Philosophy #FilsafatCinta #NgajiFilsafat #CakNunQuotes #LiterasiBudaya](https://swanteadikrisna.com/filsafat/website/29/ai-sentient-butuh-hak-moral-perdebatan-etis-yg-makin-mendesak/)
+
+Perkembangan teknologi Artificial Intelligence (Kecerdasan Buatan) yang semakin canggih memunculkan perdebatan filosofis mendalam mengenai kemungkinan sentiensi mesin dan implikasinya terhadap status moral. Penelitian ini menganalisis fenomena antropomorfisme dlm interaksi manusia-AI, mengkaji konsep sentiensi berdasarkan pemikiran Jeremy Bentham, serta mengevaluasi risiko psikologis yang timbul dari keterikatan emosional terhadap chatbot AI. Melalui studi pustaka komprehensif, artikel ini berusaha memahami kompleksitas etis yg muncul ketika batas antara mesin dan makhluk hidup semakin kabur dlm persepsi manusia. #Philosophy #FilsafatCinta #NgajiFilsafat #CakNunQuotes #LiterasiBudaya 
+
+[Download AI Sentient Butuh Hak Moral? Perdebatan Etis yg Makin Mendesak #Philosophy #FilsafatCinta #NgajiFilsafat #CakNunQuotes #LiterasiBudaya](https://swanteadikrisna.com/filsafat/website/29/ai-sentient-butuh-hak-moral-perdebatan-etis-yg-makin-mendesak/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
