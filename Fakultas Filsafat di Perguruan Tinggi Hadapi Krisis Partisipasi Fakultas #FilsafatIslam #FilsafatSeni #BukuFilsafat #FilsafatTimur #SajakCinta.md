@@ -1,0 +1,10 @@
+# [Fakultas Filsafat di Perguruan Tinggi Hadapi Krisis Partisipasi Fakultas #FilsafatIslam #FilsafatSeni #BukuFilsafat #FilsafatTimur #SajakCinta](https://swanteadikrisna.com/filsafat/website/25/fakultas-filsafat-di-perguruan-tinggi-hadapi-krisis-partisipasi-fakultas/)
+
+Penelitian ini mengeksplorasi fenomena penurunan partisipasi fakultas dalam kegiatan intelektual kolektif di departemen filsafat, berdasarkan survei terhadap lebih dari 400 responden dari berbagai tingkat karier akademik. Analisis mengungkapkan kompleksitas dinamika partisipasi, faktor-faktor institusional yang mempengaruhinya, dan usulan model kewarganegaraan akademik sebagai framework normatif untuk memahami tanggung jawab kolektif dalam komunitas filosofis. Temuan menunjukkan perlunya pendekatan pluralistik dalam memfasilitasi keterlibatan intelektual yang bermakna. #FilsafatIslam #FilsafatSeni #BukuFilsafat #FilsafatTimur #SajakCinta 
+
+[Download Fakultas Filsafat di Perguruan Tinggi Hadapi Krisis Partisipasi Fakultas #FilsafatIslam #FilsafatSeni #BukuFilsafat #FilsafatTimur #SajakCinta](https://swanteadikrisna.com/filsafat/website/25/fakultas-filsafat-di-perguruan-tinggi-hadapi-krisis-partisipasi-fakultas/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
