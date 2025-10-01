@@ -1,0 +1,10 @@
+# [Menhan Sjafrie Apresiasi Peran Pramuka Bentuk Karakter Pemuda #PertahananLaut #PatroliLaut #PertahananRudal #PeacekeepingMission #BUMN](https://swanteadikrisna.com/kemhan/website/117/menhan-sjafrie-apresiasi-peran-pramuka-bentuk-karakter-pemuda/)
+
+Penelitian ini menganalisis sinergi strategis antara Kementerian Pertahanan Republik Indonesia dengan Gerakan Pramuka dlm membangun kesadaran bela negara melalui pendidikan karakter generasi muda. Dengan menggunakan pendekatan komprehensif yg melibatkan seluruh elemen masyarakat, kajian ini menunjukkan bahwa nilai-nilai kepramukaan sejalan dengan upaya pembinaan kesadaran bela negara sebagai pilar penting pertahanan Indonesia. Analisis dilakukan berdasarkan pertemuan antara Menteri Pertahanan Sjafrie Sjamsoeddin dengan pimpinan Kwartir Nasional Gerakan Pramuka yang menandai komitmen pemerintah dalam membangun pertahanan negara melalui pendekatan holistik. #PertahananLaut #PatroliLaut #PertahananRudal #PeacekeepingMission #BUMN 
+
+[Download Menhan Sjafrie Apresiasi Peran Pramuka Bentuk Karakter Pemuda #PertahananLaut #PatroliLaut #PertahananRudal #PeacekeepingMission #BUMN](https://swanteadikrisna.com/kemhan/website/117/menhan-sjafrie-apresiasi-peran-pramuka-bentuk-karakter-pemuda/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
