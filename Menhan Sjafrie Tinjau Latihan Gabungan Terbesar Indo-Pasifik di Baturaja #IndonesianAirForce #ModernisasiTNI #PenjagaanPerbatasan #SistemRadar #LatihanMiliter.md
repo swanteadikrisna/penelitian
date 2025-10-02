@@ -1,0 +1,10 @@
+# [Menhan Sjafrie Tinjau Latihan Gabungan Terbesar Indo-Pasifik di Baturaja #IndonesianAirForce #ModernisasiTNI #PenjagaanPerbatasan #SistemRadar #LatihanMiliter](https://swanteadikrisna.com/kemhan/website/224/menhan-sjafrie-tinjau-latihan-gabungan-terbesar-indo-pasifik-baturaja/)
+
+Penelitian ini menganalisis Super Garuda Shield 2025 sebagai instrumen diplomasi pertahanan multilateral Indonesia yang telah berkembang menjadi latihan militer terbesar di kawasan Indo-Pasifik. Melalui keterlibatan 17 negara dan 6.500 personel, SGS 2025 mendemonstrasikan evolusi kerja sama keamanan regional dari bilateral menjadi multilateral, sekaligus memperkuat posisi strategis Indonesia sebagai middle power dalam arsitektur keamanan kawasan. Latihan ini tidak hanya meningkatkan interoperabilitas militer tetapi juga menjadi platform diplomasi budaya yang mengintegrasikan nilai-nilai kemanusiaan dalam kerja sama pertahanan. #IndonesianAirForce #ModernisasiTNI #PenjagaanPerbatasan #SistemRadar #LatihanMiliter 
+
+[Download Menhan Sjafrie Tinjau Latihan Gabungan Terbesar Indo-Pasifik di Baturaja #IndonesianAirForce #ModernisasiTNI #PenjagaanPerbatasan #SistemRadar #LatihanMiliter](https://swanteadikrisna.com/kemhan/website/224/menhan-sjafrie-tinjau-latihan-gabungan-terbesar-indo-pasifik-baturaja/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
