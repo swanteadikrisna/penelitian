@@ -1,0 +1,10 @@
+# [Revolusi Digital Merubah Wajah Kenotariatan Indonesia di Era 4.0 #LegalApp #LawyerLife #MobileApps #MicrosoftTeams #MobileAppDesign](https://swanteadikrisna.com/legaltech/website/44/revolusi-digital-kenotariatan-indonesia-era-4-0/)
+
+Penelitian ini mengkaji transformasi digital yang terjadi dlm praktik kenotariatan Indonesia dari masa Romawi hingga era Artificial Intelligence. Kajian ini membahas bagaimana evolusi teknologi dari media plat berlapis lilin, mesin ketik mekanik, komputer, hingga sistem elektronik modern telah mengubah efisiensi dan efektivitas pelayanan notaris. Penelitian menunjukkan bahwa meskipun sebagian besar praktik kenotariatan Indonesia masih berada pada tahap revolusi industri ketiga, terdapat upaya signifikan untuk mengadopsi teknologi digital dan kecerdasan buatan dlm meningkatkan kualitas layanan hukum kepada masyarakat. #LegalApp #LawyerLife #MobileApps #MicrosoftTeams #MobileAppDesign 
+
+[Download Revolusi Digital Merubah Wajah Kenotariatan Indonesia di Era 4.0 #LegalApp #LawyerLife #MobileApps #MicrosoftTeams #MobileAppDesign](https://swanteadikrisna.com/legaltech/website/44/revolusi-digital-kenotariatan-indonesia-era-4-0/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
