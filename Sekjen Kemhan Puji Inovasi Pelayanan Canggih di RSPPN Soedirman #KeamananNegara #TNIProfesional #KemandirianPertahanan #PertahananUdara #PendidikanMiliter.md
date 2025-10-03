@@ -1,0 +1,10 @@
+# [Sekjen Kemhan Puji Inovasi Pelayanan Canggih di RSPPN Soedirman #KeamananNegara #TNIProfesional #KemandirianPertahanan #PertahananUdara #PendidikanMiliter](https://swanteadikrisna.com/kemhan/website/204/implementasi-teknologi-kesehatan-terintegrasi-dan-pelayanan-inovatif-di-rumah-sakit-pusat-pertahanan-negara-panglima-besar-soedirman-analisis-komprehensif-terhadap-transformasi-layanan-medis-pertahanan/)
+
+Bogor – Sekretaris Jenderal Kementerian Pertahanan (Sekjen Kemhan) Letjen TNI Tri Budi Utomo selaku Inspektur Upacara (Irup) memimpin Upacara Penetapan Komponen Cadangan (Komcad) Matra Darat PNS dan PPPK Unit Organisasi (UO) Kemhan Gelombang II Tahun Anggaran 2025 di Pusdikzi Puziad, Bogor, Rabu (27/8/2025). Dalam kesempatan tersebut, Sekjen Kemhan secara resmi menetapkan 243 orang sebagai Kompo... #KeamananNegara #TNIProfesional #KemandirianPertahanan #PertahananUdara #PendidikanMiliter 
+
+[Download Sekjen Kemhan Puji Inovasi Pelayanan Canggih di RSPPN Soedirman #KeamananNegara #TNIProfesional #KemandirianPertahanan #PertahananUdara #PendidikanMiliter](https://swanteadikrisna.com/kemhan/website/204/implementasi-teknologi-kesehatan-terintegrasi-dan-pelayanan-inovatif-di-rumah-sakit-pusat-pertahanan-negara-panglima-besar-soedirman-analisis-komprehensif-terhadap-transformasi-layanan-medis-pertahanan/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
