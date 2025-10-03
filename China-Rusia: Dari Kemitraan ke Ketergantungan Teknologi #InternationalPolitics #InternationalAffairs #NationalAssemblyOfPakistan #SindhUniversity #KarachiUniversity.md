@@ -1,0 +1,10 @@
+# [China-Rusia: Dari Kemitraan ke Ketergantungan Teknologi #InternationalPolitics #InternationalAffairs #NationalAssemblyOfPakistan #SindhUniversity #KarachiUniversity](https://swanteadikrisna.com/geopolitik/website/2/china-rusia-dari-kemitraan-ke-ketergantungan-teknologi/)
+
+Penelitian ini menganalisis evolusi hubungan bilateral China-Rusia dari perspektif ketergantungan teknologi dan transformasi industri pertahanan. Melalui pendekatan kualitatif dan analisis data sekunder, studi ini menunjukkan bagaimana dinamika hubungan kedua negara telah berubah dari pola supplier-buyer tradisional menjadi ketergantungan teknologi yang asimetris, dimana China kini mendominasi transfer teknologi kepada Rusia, terutama dalam sektor pertahanan dan teknologi tinggi. #InternationalPolitics #InternationalAffairs #NationalAssemblyOfPakistan #SindhUniversity #KarachiUniversity 
+
+[Download China-Rusia: Dari Kemitraan ke Ketergantungan Teknologi #InternationalPolitics #InternationalAffairs #NationalAssemblyOfPakistan #SindhUniversity #KarachiUniversity](https://swanteadikrisna.com/geopolitik/website/2/china-rusia-dari-kemitraan-ke-ketergantungan-teknologi/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
