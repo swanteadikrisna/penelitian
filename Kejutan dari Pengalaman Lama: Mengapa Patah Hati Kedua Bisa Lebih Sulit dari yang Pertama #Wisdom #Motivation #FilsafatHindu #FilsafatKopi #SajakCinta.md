@@ -1,0 +1,10 @@
+# [Kejutan dari Pengalaman Lama: Mengapa Patah Hati Kedua Bisa Lebih Sulit dari yang Pertama #Wisdom #Motivation #FilsafatHindu #FilsafatKopi #SajakCinta](https://swanteadikrisna.com/filsafat/website/47/kejutan-dari-pengalaman-lama-mengapa-patah-hati-kedua-bisa-lebih-sulit-dari-yang-pertama/)
+
+Artikel ini mengeksplorasi dimensi epistemik dari transformasi personal yang terjadi melalui pengalaman berulang, khususnya dalam konteks hubungan romantis dan pembentukan identitas. Berbeda dari fokus tradisional pada pengalaman transformatif yang bersifat novel, penelitian ini menunjukkan bahwa pengalaman lama dapat menghadirkan tantangan epistemik yang sama atau bahkan lebih kompleks dalam membentuk batasan pengetahuan dan imajinasi individu tentang kemungkinan masa depan mereka. #Wisdom #Motivation #FilsafatHindu #FilsafatKopi #SajakCinta 
+
+[Download Kejutan dari Pengalaman Lama: Mengapa Patah Hati Kedua Bisa Lebih Sulit dari yang Pertama #Wisdom #Motivation #FilsafatHindu #FilsafatKopi #SajakCinta](https://swanteadikrisna.com/filsafat/website/47/kejutan-dari-pengalaman-lama-mengapa-patah-hati-kedua-bisa-lebih-sulit-dari-yang-pertama/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
