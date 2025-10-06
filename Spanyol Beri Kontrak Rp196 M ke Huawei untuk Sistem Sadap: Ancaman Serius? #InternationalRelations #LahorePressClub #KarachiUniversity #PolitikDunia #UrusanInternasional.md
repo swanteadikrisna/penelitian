@@ -1,0 +1,10 @@
+# [Spanyol Beri Kontrak Rp196 M ke Huawei untuk Sistem Sadap: Ancaman Serius? #InternationalRelations #LahorePressClub #KarachiUniversity #PolitikDunia #UrusanInternasional](https://swanteadikrisna.com/geopolitik/website/6/spanyol-beri-kontrak-rp196-m-ke-huawei-untuk-sistem-sadap-ancaman-serius/)
+
+Penelitian ini menganalisis implikasi keamanan strategis dari keputusan Spanyol memberikan kontrak sistem penyadapan SITEL kepada Huawei Technologies senilai €12,3 juta. Studi ini mengeksplorasi bagaimana fragmentasi kebijakan keamanan siber di antara negara-negara Uni Eropa menciptakan kerentanan sistemik dalam berbagi intelijen dan kerja sama pertahanan NATO. Melalui pendekatan analisis geopolitik digital dan tinjauan literatur keamanan siber, penelitian ini mengidentifikasi celah kelembagaan yg signifikan dlm perlindungan infrastruktur intelijen Eropa terhadap potensi eksploitasi oleh aktor negara otoriter, khususnya dalam konteks Undang-Undang Intelijen Nasional Tiongkok 2017. #InternationalRelations #LahorePressClub #KarachiUniversity #PolitikDunia #UrusanInternasional 
+
+[Download Spanyol Beri Kontrak Rp196 M ke Huawei untuk Sistem Sadap: Ancaman Serius? #InternationalRelations #LahorePressClub #KarachiUniversity #PolitikDunia #UrusanInternasional](https://swanteadikrisna.com/geopolitik/website/6/spanyol-beri-kontrak-rp196-m-ke-huawei-untuk-sistem-sadap-ancaman-serius/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
