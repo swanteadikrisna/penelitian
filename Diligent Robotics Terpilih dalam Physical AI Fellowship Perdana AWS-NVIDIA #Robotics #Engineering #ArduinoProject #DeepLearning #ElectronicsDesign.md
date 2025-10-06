@@ -1,0 +1,10 @@
+# [Diligent Robotics Terpilih dalam Physical AI Fellowship Perdana AWS-NVIDIA #Robotics #Engineering #ArduinoProject #DeepLearning #ElectronicsDesign](https://swanteadikrisna.com/robot/website/6/revolusi-physical-ai-diligent-robotics-terpilih-jadi-pioneer-fellowship-bergengsi/)
+
+Studi ini menganalisis dampak strategis dari Physical AI Fellowship yang diinisiasi oleh AWS, NVIDIA, dan MassRobotics terhadap perkembangan ekosistem robotika modern, dengan fokus khusus pada implementasi teknologi AI-native robotics dalam sektor healthcare dan manufacturing. Penelitian ini mengeksplorasi bagaimana kolaborasi tripartit antara cloud computing, semiconductor AI, dan hub robotika dapat mempercepat inovasi startup teknologi robotika melalui pendekatan fellowship yang komprehensif dan terstruktur dalam mendukung pengembangan sistem autonomous yang intelligent. #Robotics #Engineering #ArduinoProject #DeepLearning #ElectronicsDesign 
+
+[Download Diligent Robotics Terpilih dalam Physical AI Fellowship Perdana AWS-NVIDIA #Robotics #Engineering #ArduinoProject #DeepLearning #ElectronicsDesign](https://swanteadikrisna.com/robot/website/6/revolusi-physical-ai-diligent-robotics-terpilih-jadi-pioneer-fellowship-bergengsi/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
