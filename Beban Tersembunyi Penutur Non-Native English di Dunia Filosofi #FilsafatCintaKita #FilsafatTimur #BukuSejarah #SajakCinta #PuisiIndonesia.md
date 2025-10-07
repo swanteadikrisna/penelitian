@@ -1,0 +1,10 @@
+# [Beban Tersembunyi Penutur Non-Native English di Dunia Filosofi #FilsafatCintaKita #FilsafatTimur #BukuSejarah #SajakCinta #PuisiIndonesia](https://swanteadikrisna.com/filsafat/website/42/filosofi-global-hambatan-bahasa-ketimpangan-riset-ungkap-2025/)
+
+Penelitian internasional terhadap lebih dari 1.600 filsuf mengungkap disparitas signifikan antara penutur asli dan non-asli bahasa Inggris dalam ranah filosofi akademik. Studi ini mengeksplorasi bagaimana dominasi bahasa Inggris akademik menciptakan hambatan epistemik yang sistematis, mempengaruhi partisipasi intelektual, dan mengancam keberagaman perspektif dalam diskursus filosofis global. Temuan menunjukkan bahwa penutur non-native English menghadapi beban kerja ganda, mengalami penurunan kepercayaan diri, dan kehilangan kemampuan berfilsafat dalam bahasa ibu mereka, sementara struktur akademik yang ada melanggengkan ketidakadilan linguistik dan sosioekonomik. #FilsafatCintaKita #FilsafatTimur #BukuSejarah #SajakCinta #PuisiIndonesia 
+
+[Download Beban Tersembunyi Penutur Non-Native English di Dunia Filosofi #FilsafatCintaKita #FilsafatTimur #BukuSejarah #SajakCinta #PuisiIndonesia](https://swanteadikrisna.com/filsafat/website/42/filosofi-global-hambatan-bahasa-ketimpangan-riset-ungkap-2025/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
