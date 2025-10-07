@@ -1,0 +1,10 @@
+# [Penipu Mobile Sasar Akun Broker dalam Skema &#039;Ramp and Dump&#039; Baru #CyberSecurityConsultant #CyberSecurityIndonesia #CyberSecurityLeader #CyberAttack #KaliLinux](https://swanteadikrisna.com/cybersecurity/website/1/penipu-mobile-sasar-akun-broker-dalam-skema-ramp-and-dump-baru/)
+
+Penelitian ini menganalisis evolusi taktik phishing mobile dari penargetan mobile wallet ke platform broker dengan menggunakan skema manipulasi saham "ramp and dump". Studi menunjukkan bagaimana kelompok cybercriminal berbasis Cina mengadaptasi teknologi AI dan large language models untuk mengembangkan serangan yg lebih canggih terhadap institusi keuangan, mengeksploitasi kelemahan sistem autentikasi multi-faktor tradisional dan menciptakan model kejahatan baru yang sulit dideteksi karena memisahkan aktivitas manipulasi dari akun korban. #CyberSecurityConsultant #CyberSecurityIndonesia #CyberSecurityLeader #CyberAttack #KaliLinux 
+
+[Download Penipu Mobile Sasar Akun Broker dalam Skema &#039;Ramp and Dump&#039; Baru #CyberSecurityConsultant #CyberSecurityIndonesia #CyberSecurityLeader #CyberAttack #KaliLinux](https://swanteadikrisna.com/cybersecurity/website/1/penipu-mobile-sasar-akun-broker-dalam-skema-ramp-and-dump-baru/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
