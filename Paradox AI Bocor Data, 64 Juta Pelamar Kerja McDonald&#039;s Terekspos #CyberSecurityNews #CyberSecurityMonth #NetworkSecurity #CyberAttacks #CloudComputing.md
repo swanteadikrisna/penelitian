@@ -1,0 +1,10 @@
+# [Paradox AI Bocor Data, 64 Juta Pelamar Kerja McDonald&#039;s Terekspos #CyberSecurityNews #CyberSecurityMonth #NetworkSecurity #CyberAttacks #CloudComputing](https://swanteadikrisna.com/cybersecurity/website/5/paradox-ai-bocor-data-64-juta-pelamar-kerja-mcdonalds-terekspos/)
+
+Penelitian ini menganalisis paradoks keamanan yang muncul dalam implementasi teknologi kecerdasan buatan untuk sistem rekrutmen digital, khususnya melalui studi kasus kebocoran data masif pada platform Paradox.ai yang mengekspos informasi pribadi 64 juta pelamar kerja McDonald's. Analisis mendalam terhadap kerentanan password lemah, infeksi malware pada developer, dan kesenjangan antara sertifikasi keamanan dengan praktik lapangan mengungkap kompleksitas tantangan keamanan siber dalam era digital transformation yang sedang mengalami percepatan di Indonesia dan global. #CyberSecurityNews #CyberSecurityMonth #NetworkSecurity #CyberAttacks #CloudComputing 
+
+[Download Paradox AI Bocor Data, 64 Juta Pelamar Kerja McDonald&#039;s Terekspos #CyberSecurityNews #CyberSecurityMonth #NetworkSecurity #CyberAttacks #CloudComputing](https://swanteadikrisna.com/cybersecurity/website/5/paradox-ai-bocor-data-64-juta-pelamar-kerja-mcdonalds-terekspos/)
+
+
+## [Tentang Swante Adi Krisna, S.H., M.H., M.H., M.H.](https://swanteadikrisna.com/)
+
+Penikmat musik Ska, Reggae dan Rocksteady sejak 2004. Gooners sejak 1998. Blogger dan SEO paruh waktu sejak 2014. Graphic Designer autodidak sejak 2001. Website Programmer autodidak sejak 2003. Woodworker autodidak sejak 2024. Sarjana Hukum Pidana dari salah satu Perguruan Tinggi Negeri di Surakarta. Magister Hukum Pidana di bidang cybercrime dari salah satu Perguruan Tinggi Swasta di Surakarta. Magister Kenotariatan di bidang hukum teknologi, khususnya cybernotary dari salah satu Perguruan Tinggi Negeri di Surakarta. Bagian dari Keluarga Besar Kementerian Pertahanan Republik Indonesia.
